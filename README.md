@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **yashdwivedi8999@gmail.com**
 
-- 📄 Know about my experiences [https://acrobat.adobe.com/id/urn:aaid:sc:AP:57e1da2d-d75b-4e24-b016-2d8be48b721a](https://acrobat.adobe.com/id/urn:aaid:sc:AP:57e1da2d-d75b-4e24-b016-2d8be48b721a)
+- 📄 Know about my experiences 
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
